@@ -1,4 +1,2 @@
-
-[![makesweet-1sz44g](https://github.com/user-attachments/assets/7ff801ea-dafe-46d8-b508-dec2d2006c0e)](https://kero.uz)
-
+[![wordart](https://github.com/user-attachments/assets/40e71b66-4959-4bd5-8a0d-1382c47b4911)](https://kero.uz)
 [kero.uz](https://kero.uz)
